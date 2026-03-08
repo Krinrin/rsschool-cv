@@ -1,0 +1,1 @@
+https://Krinrin.github.io/rsschool-cv/cv
